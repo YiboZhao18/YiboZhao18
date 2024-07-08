@@ -19,6 +19,6 @@
   
 - 📫 Reach me at yibo.zhao.18@ucl.ac.uk or connect with me on [Linkedin](https://www.linkedin.com/in/yibo-zhao-296401188/).
   
-- 💎 Part-time jewellery maker, creating customised pieces with silver wire and gemstones. Check my work on [Instagram@yibo_msming.jewellery](https://www.instagram.com/yibo_msming.jewellery/)
+- 💎 Part-time jewellery maker, creating customised pieces with silver wire and gemstones. Check my work on [Instagram](https://www.instagram.com/yibo_msming.jewellery/)
 
 
